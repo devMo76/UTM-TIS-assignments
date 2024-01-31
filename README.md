@@ -6,3 +6,4 @@ There are certain reflections I found in me while doing the following assignment
 3) Overview on ICT jobs:-gives me the basic knowledge on the ict job field, which helps me plan and know which route I will be taking in my journey.
 4) Newsletter:- It was a facinating trip, which shows how the "indah water" company deals wiht the excess water in malaysia. It answered for us many questions we thought of from our childhood.
 5) Disign Thinking Report:- It demonstrated to me how to plan and organize a project. It provided me with some quick ideas for using those templates in the future to provide high-quality output for individuals.
+PC assembly:- I enjoyed the process of building a pc from zero. This assignment showed me how the world of technology is very wide! By looking at every component of the pc and how much details it has.
